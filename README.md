@@ -1,5 +1,5 @@
 -  Hi, I’m Amanjit Singh and this is my brand new github account!
--  Please be patient with me as I upload my ongoing projects here, as I am currently moving, they should be uploaded by the end of this week (9/09/22)!
+-  Please be patient with me as I upload my ongoing projects here, as I am currently moving, they should be uploaded by the end of this week (9/11/22)!
 -  You can reach me at a.singh.uh@gmail.com for any professional or business inquiries!
 
 <!---
